@@ -1,2 +1,0 @@
-# ninjarak.gifthub.io
-сайтик
